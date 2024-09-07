@@ -1,4 +1,4 @@
-![akumanomi]([[link_do_gif](https://pa1.aminoapps.com/6528/b8ad9ebb6234e1464cc62177f1e745dcd1ad1982_hq.gif)](https://i.pinimg.com/originals/09/9a/53/099a53fae07d7c955da1e93c99218715.gif))
+![akumanomi](https://i.pinimg.com/originals/09/9a/53/099a53fae07d7c955da1e93c99218715.gif)
 
 ## Guia Desvendando os Poderes das Akuma no Mi
 

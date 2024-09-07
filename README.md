@@ -22,3 +22,5 @@ Compartilhar com seus amigos: Mostre para todo mundo que você é um verdadeiro 
 Criar suas próprias teorias: Quem sabe você não descobre uma nova conexão entre as frutas?
 Como usar este guia?
 É muito simples! Basta pesquisae pelo nome ou algo relacionado a fruta como usuario ou habilidads de cada Akuma no Mi e se divertir aprendendo sobre os poderes mais incríveis do mundo de One Piece.
+
+pequeno spoiler sobre as akuma no mi listadas ate agora : yumi yumi, gomo gomo , hana hana , ope ope , mera mera, pika pika, yuki yuki e mochi mochi

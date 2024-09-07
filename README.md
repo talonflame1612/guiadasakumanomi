@@ -1,4 +1,4 @@
-![akumanomi]([link_do_gif](https://pa1.aminoapps.com/6528/b8ad9ebb6234e1464cc62177f1e745dcd1ad1982_hq.gif))
+![akumanomi]([[link_do_gif](https://pa1.aminoapps.com/6528/b8ad9ebb6234e1464cc62177f1e745dcd1ad1982_hq.gif)](https://i.pinimg.com/originals/09/9a/53/099a53fae07d7c955da1e93c99218715.gif))
 
 ## Guia Desvendando os Poderes das Akuma no Mi
 
@@ -8,7 +8,11 @@ Este guia foi criado para todos os fãs de One Piece que querem saber mais sobre
 
 Usuário: Quem está atualmente comendo a fruta?
 Tipo: Se é Paramecia, Logia ou Zoan.
+
+
 ![nascimento de uma akumanomi](https://static.wikia.nocookie.net/op-seken-infos/images/4/47/FDD.gif/revision/latest?cb=20160722154242&path-prefix=fr)
+
+
 Por que criar esse guia?
 
 Porque todo bom pirata precisa conhecer suas armas! As Akuma no Mi são um dos elementos mais interessantes e poderosos do universo de One Piece. Com este guia, você poderá:
